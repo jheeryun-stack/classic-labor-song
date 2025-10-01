@@ -1,0 +1,1 @@
+# classic-labor-song
